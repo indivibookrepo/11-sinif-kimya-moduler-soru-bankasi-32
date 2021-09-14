@@ -1,0 +1,1 @@
+# 11-sinif-kimya-moduler-soru-bankasi-32
